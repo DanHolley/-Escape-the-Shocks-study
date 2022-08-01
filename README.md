@@ -1,1 +1,1 @@
-# -Escape-the-Shocks-study
+# Escape-the-Shocks-study
